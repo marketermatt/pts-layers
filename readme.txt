@@ -1,0 +1,1 @@
+Install and use as you please. Direct all questions to info@pixelthemestudio.com.
